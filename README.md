@@ -1,1 +1,0 @@
-# GRID-Responsive-HTML-Template
